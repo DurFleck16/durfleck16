@@ -1,4 +1,4 @@
-![image](https://github.com/DurFleck16/durfleck16/assets/121762364/835bd1bb-af2e-4ee9-b2ca-fbc496ee12d3)# DurFleck16 （东方慢车）
+# DurFleck16 （东方慢车）
 
 Real Name: Jiale Li （李嘉乐）
 
