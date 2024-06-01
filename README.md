@@ -7,3 +7,5 @@ Just a nobody. Currently undergraduate student enrolled in a computer science pr
 只是个无名小卒，目前在青岛水专混个计算机类学士学位。
 
 Email(CERNET): [ljl1407@stu.ouc.edu.cn](mailto:ljl1407@stu.ouc.edu.cn)
+
+## 广告位招租
