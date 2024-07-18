@@ -10,4 +10,3 @@ Email(CERNET): [ljl1407@stu.ouc.edu.cn](mailto:ljl1407@stu.ouc.edu.cn)
 
 Email(QQ): [durfleck16@qq.com](mailto:durfleck16@qq.com)
 
-## 广告位招租
